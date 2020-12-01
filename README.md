@@ -1,6 +1,6 @@
 ### Hi there 👋
-
-# Follow me on [twitter](https://twitter.com/CharleneKanda)
+Student @BusinessApps/Webforce3
+Follow me on [twitter](https://twitter.com/CharleneKanda)
 
 <!--
 **charlenekanda/charlenekanda** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
