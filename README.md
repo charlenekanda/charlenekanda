@@ -1,5 +1,4 @@
 ### Hi there 👋
-Student @BusinessApps/Webforce3
 Follow me on [twitter](https://twitter.com/CharleneKanda)
 
 <!--
